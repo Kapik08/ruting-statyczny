@@ -1,0 +1,1 @@
+# ruting-statyczny
